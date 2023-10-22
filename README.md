@@ -7,3 +7,6 @@ Edwin David Duque Grajales cc. 1017255650 Ingenieria Ambiental
 Peter Daniel Garrido Rodriguez cc. 1085952515 Ingenieria Industrial
 
 Jheison Andres Benavides Rincon cc. 1015466242 Ingenieria Civil
+
+Link Video Entrega_2:
+https://www.youtube.com/watch?v=YJWShZmztU4
